@@ -12,8 +12,8 @@
 
 ## Social
 - Discord:- Deleted User 45d7gwe#1169
-- Instagram:- [@`__the_game_is_on_`](https://www.instagram.com/__the_game_is_on_) 
-- Twitter:- [@notanerd_5](https://twitter.com/notanerd_5)
+- Instagram:- [`@__the_game_is_on_`](https://www.instagram.com/__the_game_is_on_) 
+- Twitter:- [`@notanerd_5`](https://twitter.com/notanerd_5)
 <br>
 
 ```
